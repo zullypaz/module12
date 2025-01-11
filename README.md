@@ -16,4 +16,5 @@ SO THAT I can organize and plan my business
 
 ## Video 
 
+https://github.com/user-attachments/assets/0ca71c5f-8af7-4a00-86e4-5a3f7dcad685
 
